@@ -8,8 +8,6 @@
 
 ---
 
----
-
 ## 🔗 Quick Navigation
 
 * [Apex Cheat features](#features-overview)
