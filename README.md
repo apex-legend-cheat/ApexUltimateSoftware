@@ -1,4 +1,4 @@
-# Apex Cheat – Your Tactical Advantage in Apex Legends
+# Apex Cheat: Undetected Aimbot, ESP, Wallhack for Apex Legends
 
 **Apex Cheat** is a precision-crafted toolset built for serious Apex Legends players. More than just a standard cheat, it's a configurable, undetected companion that gives skilled players the edge they need to dominate the battlefield with confidence and control.
 
